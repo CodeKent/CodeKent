@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CodeKent
-- 👀 I’m interested in getting paid/laid through cod
+- 👀 I’m interested in getting paid/laid through code
 - 🌱 I’m currently learning to get laid.
 - 💞️ I’m looking to collaborate on intensely sexual relationships.
 
